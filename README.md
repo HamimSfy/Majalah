@@ -1,0 +1,2 @@
+# Majalah
+HamshSfy
